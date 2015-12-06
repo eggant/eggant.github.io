@@ -1,1 +1,1 @@
-The personal for eggant.
+The personal pages for eggant.
